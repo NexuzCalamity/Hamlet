@@ -1,1 +1,1 @@
-https://nexuzcalamity.github.io/Hamlet/?utm_source=chatgpt.com
+https://nexuzcalamity.github.io/Hamlet
